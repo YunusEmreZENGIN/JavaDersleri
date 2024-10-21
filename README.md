@@ -1,1 +1,1 @@
-Nesne Tabanlı Proglamlama Dderslerindeki Çalışmalarım
+Nesne Tabanlı Proglamlama Derslerindeki Çalışmalarım
